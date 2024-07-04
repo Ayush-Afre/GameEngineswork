@@ -1,3 +1,3 @@
-Some files are too large to be put in here 
+All videos can be found at: https://www.youtube.com/@ayushafre
 
-Please visit [the drive link](https://drive.google.com/drive/folders/1zpqnGz9lXhRitn10GiXzU9HgHlaTQ-ug) for seeing rest of my work
+Please note: Gameplay in all the videos in these videos has been created by me.
